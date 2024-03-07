@@ -41,4 +41,4 @@ Turns out what they wanted was to be recognized as better then ALPHV, and my res
 ***To be continued...***
 
 
-# These are tge journals of a different Individual, read and enjoy
+# These are the journals of a different Individual, read and enjoy
